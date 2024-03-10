@@ -1,2 +1,0 @@
-# youfis-bule
-AIRDROP
